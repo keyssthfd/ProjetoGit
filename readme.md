@@ -1,0 +1,1 @@
+Olá esse projeto p vc ser menos vagabunda, e ir estudar
