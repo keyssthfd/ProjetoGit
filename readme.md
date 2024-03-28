@@ -1,1 +1,1 @@
-Olá esse projeto p vc ser menos vagabunda, e ir estudar
+Olá esse projeto ensina voce a usar o Git
